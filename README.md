@@ -1,1 +1,1 @@
-# Obsessed-over-walpapers
+# Obsessed-over-wallpapers
